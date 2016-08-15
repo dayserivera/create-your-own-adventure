@@ -1,0 +1,1 @@
+Ficou choramingando no aeroporto de la paz, num frio desgraçado, durante 4 dias e voltou pro Brasil muito infeliz.

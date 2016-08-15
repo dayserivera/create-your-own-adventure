@@ -1,0 +1,1 @@
+Aos trancos e barrancos chegou no deserto de uyuni, teve o celular furtado, mas conheceu outros aventureiros  e foi feliz para sempre :-)

@@ -61,3 +61,5 @@ BR BR BR Hue hue hue!!!!
 [História com um fim muito legal] (historia/fim.md)
 
 [Corrigiria o bug fazendo o seguinte] (jc/jc.md)
+
+[Larga tudo e faz uma viagem](viagem/bolivia)
